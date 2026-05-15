@@ -1,4 +1,4 @@
-# 
+# Enhance your NFT trading with vip opensea sniper bot | flip-strategies + proxy-transactions, the #1 opensea sniper bot. Includes flip-strategies and proxy-transactions for a
 
 
 
